@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CouncilSpeaks
-- 👀 I’m interested in Building a Stratup that will help the people to get connect with Counsellor to resolve thier queries.
+- 👀 I’m interested in Building a Startup that will help the people to get connect with Counsellor to resolve thier queries.
 - 🌱 I’m currently Building my Startup
 - 💞️ I’m looking to collaborate on Best minds to contribute in this Idea
 - 📫 How to reach me councilspeak@gmail.com
